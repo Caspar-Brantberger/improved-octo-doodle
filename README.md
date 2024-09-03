@@ -1,3 +1,3 @@
 # improved-octo-doodle 
 
-Hej på dig!
+Hejsan jag heter Caspar Brantberger! Jag är 24 år gammal och kommer från Nyköping. Jag bor tillsammans med min sambo i en etta på 40 kvadratmeter med 4 marsvin som heter Aurora,Grace,Michelle och Chloe`. På fritiden så spelar jag rätt mycket spel som RPGs och andra typer men för det mesta RPGs. Största delen av min fritiden som inte spenderas med min flickvän så tränar jag kroppsbyggning, med andra ord gymmar. Jag gör detta inför luciapokalen som kommer hållas i december. För er som inte vet vad det är så är det en kroppsbyggartävling.
